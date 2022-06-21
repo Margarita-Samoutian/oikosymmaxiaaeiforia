@@ -95,66 +95,95 @@
 ΕΡΓΑΣΤΗΡΙΑ
 
 *ΠΡΩΤΗ ΦΑΣΗ-ΣΥΛΛΟΓΗ ΥΛΙΚΟΥ (ΕΡΕΥΝΑ ΠΕΔΙΟΥ, ΨΗΦΟΦΟΡΙΑ, ΔΗΜΙΟΥΡΓΙΑ ΕΝΝΟΙΟΛΟΓΙΚΩΝ ΧΑΡΤΩΝ)
+
 Η εισαγωγή στη δράση έγινε με την διερεύνηση της προϋπάρχουσας γνώσης των μαθητών σχετικά με την έννοια του “μνημείου”. Κάθε ομάδα δημιούργησε το δικό της αραχνόγραμμα, αποτυπώνοντας τις ιδέες των νηπίων. Ακολουθούν ενδεικτικές εικόνες από τις ιδεοθύελλες που δημιουργήθηκαν από τους μαθητές.
 
 ![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%201.jpg)
 
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2012.jpg)
 
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2013.jpg)
 
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2010.jpg)
 
 Στη συνέχεια, κάθε σχολείο πρότεινε μια λέξη ή φράση προκειμένου να δημιουργηθεί ένας online ψηφιακός κατάλογος με θέμα τα “μηνμεία”, ανοιχτός για επεξεργασία, συζήτηση, μελέτη και ανατροφοδότηση σε όλη τη διάρκεια των δραστηριοτήτων. 
 
 “Τι είναι το μημείο;”
+http://meetingwords.com/9gqktuGDnv
 
-
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2014.jpg)
 
 Όλες οι ομάδες αναζήτησαν πληροφορίες τόσο σε βιβλία, όσο και στο διαδίκτυο και απάντησαν σε ένα ερωτηματολόγιο, με ενσωματωμένες εικόνες, προκειμένου να διαπιστωθεί η εμπέδωση της έννοιας του μνημείου.
 
-  
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2020.jpg)
+
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2021.jpg)
+
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2018.jpg)
 
 Ερωτηματολόγιο “Ο θησαυρός των μνημείων”
-
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2015.jpg)
 
 
 Αποτελέσματα έρευνας
-
-
+https://www.canva.com/design/DAE_GcM6mzQ/mMgrBZlG_APpSJ-U_JFGkw/view?utm_content=DAE_GcM6mzQ&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2016.jpg)
 
 Σε συνέχεια οι μαθητές, με τη βοήθεια των γονέων και της οικογένειας τους, έκαναν έρευνα πεδίου, αναζητώντας στην περιοχή τους σημεία με φυσική ή πολιτιστική – ιστορική σημασία, είτε με φυσική παρουσία, είτε διαδικτυακά. Όλο το υλικό με τις φωτογραφίες και τις πληροφορίες που συγκεντρώθηκε, αποτέλεσε  σημείο αναφοράς και συζήτησης για περαιτέρω διερεύνηση και εμπέδωση.
 
 Ψηφιακή πινακοθήκη αναζητήσεων
-
-
+https://www.artsteps.com/view/628109c0a31975b70fed8fda
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2058.png)
 
 Έπειτα κάθε σχολική ομάδα, με χρήση συγκεκριμένου ψηφιακού εργαλείου, πραγματοποίησε διαδικτυακή ψηφοφορία, επιλέγοντας και εστιάζοντας σε ένα αντιπροσωπευτικό μνημείο της περιοχής τους. Παράλληλα συγκέντρωσε και κατέγραψε, μέσω ιδεοθύελλας, τις πληροφορίες που ήδη γνώριζαν τα παιδιά γι΄αυτό, σε έναν εννοιολογικό χάρτη, για οπτικοποίηση της γνώσης. 
+         
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2032.jpg)
 
-          
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2030.jpg)
 
- 
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2027.jpg)
+
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2026.jpg)
+
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2023.jpg)
+
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2025.jpg)
 
 *ΔΕΥΤΕΡΗ ΦΑΣΗ- ΕΠΑΦΗ ΜΕ ΤΟ ΣΗΜΕΙΟ (GOOGLE EARTH, GOOGLE MAPS, ΕΠΑΦΗ ΜΕ ΤΟ ΣΗΜΕΙΟ, ΑΝΙΧΝΕΥΣΗ ΠΡΟΒΛΗΜΑΤΩΝ)
-Όλες οι ομάδες χρησιμοποιώντας  την εφαρμογή Google Earth Pro εντόπισαν  τα μνημεία που βρίσκονται στην περιοχή τους (εκείνα που είχαν δει στις φωτογραφίες που έφεραν στην προηγούμενη φάση, αλλά και άλλα καινούργια). Η εφαρμογή τους μετέφερε εικονικά σε αυτά, δίνοντάς τους τη δυνατότητα να παρατηρήσουν την διαδρομή, αλλά και τυχόν προβλήματα που θα μπορούσαν να συναντήσουν. Η ψηφιακή ξενάγηση προς το μνημείο που εκπροσωπούσε κάθε ομάδα αποθηκεύτηκε και με την βοήθεια εργαλείων της εφαρμογής αποτυπώθηκε σε βίντεο. Για τη συλλογή του υλικού χρησιμοποιήθηκε ένας ψηφιακός τοίχος.
+
+Όλες οι ομάδες χρησιμοποιώντας  την εφαρμογή Google Earth Pro εντόπισαν τα μνημεία που βρίσκονται στην περιοχή τους (εκείνα που είχαν δει στις φωτογραφίες που έφεραν στην προηγούμενη φάση, αλλά και άλλα καινούργια). Η εφαρμογή τους μετέφερε εικονικά σε αυτά, δίνοντάς τους τη δυνατότητα να παρατηρήσουν την διαδρομή, αλλά και τυχόν προβλήματα που θα μπορούσαν να συναντήσουν. Η ψηφιακή ξενάγηση προς το μνημείο που εκπροσωπούσε κάθε ομάδα αποθηκεύτηκε και με την βοήθεια εργαλείων της εφαρμογής αποτυπώθηκε σε βίντεο. Για τη συλλογή του υλικού χρησιμοποιήθηκε ένας ψηφιακός τοίχος.
 
 Το χάρτη τον πραγματικό τώρα θα τον κάνω ψηφιακό (με ένα tablet ή ένα κινητό)
+https://padlet.com/evangeliakouseri/yqh9qi8752j4qzi5
 
 Έπειτα, με το εργαλείο Google Maps οι ομάδες σχεδίασαν ηλεκτρονικά την διαδρομή που θα ακολουθούσαν για να φτάσουν στο σημείο ενδιαφέροντος, την εκτύπωσαν και την αναπαρέστησαν ομαδικά ή ατομικά σε χαρτί ώστε να αποτελέσει χάρτη-οδηγό για τη δια ζώσης επίσκεψη στο μνημείο. Οι μαθητές κατά την διάρκεια του περιπάτου παρατήρησαν, συζήτησαν, ερεύνησαν, ανακάλυψαν  προβλήματα στην διαδρομή, αλλά και στον χώρο του αξιοθέατου. Για να συλλέξουν λεπτομέρειες χρησιμοποίησαν τεχνολογικό εξοπλισμό, όπως τάμπλετ ή κινητά.
 
 Η επιστροφή στο νηπιαγωγείο βρίσκει τις ομάδες να καταγράφουν και πάλι την πορεία που ακολούθησαν, εμπλουτισμένη αυτή την φορά με περισσότερες πληροφορίες.
 
 Με μολύβι και χαρτί τη διαδρομή του χάρτη θα σας δείξω στη στιγμή!
+https://dotstorming.com/w/62559256d58d6a5f05d9aee8
 
 Ως αποτέλεσμα η δημιουργία μιας ακόμα παρουσίασης που περιλάμβανε την έρευνα πεδίου κοντά στο μνημείο.
 
 “Προς το μνημείο μου προχωρώ και στη διαδρομή μου βρίσκω χίλια δυο”
-
+https://docs.google.com/presentation/d/1qg5D3dkx1BkpnfdJRE5rDIlgfLACkNKJfligRfx7vcU/edit?usp=sharing
  
-
 *ΤΡΙΤΗ ΦΑΣΗ- ΕΜΠΛΟΥΤΙΣΜΟΣ ΓΝΩΣΕΩΝ (ΣΥΝΕΝΤΕΥΞΗ, ΕΠΑΛΗΘΕΥΣΗ ΠΡΟΒΛΗΜΑΤΩΝ)
 Σε συνέχεια των δραστηριοτήτων και μετά την επιστροφή των παιδιών από τις επισκέψεις τους στα μνημεία, οι ομάδες προκειμένου να εμπλουτίσουν τις γνώσεις τους αναζήτησαν περαιτέρω πληροφορίες μέσα από συνεντεύξεις. Στόχος ήταν η σύγκριση των προβλημάτων που εντόπισαν κοντά στο αξιοθέατο με αυτά που υπήρχαν στο παρελθόν. Έτσι, παππούδες, γιαγιάδες, γονείς, ντόπιοι κάτοικοι και ειδικοί γίνονται συνοδοιπόροι σε αυτό το ταξίδι γνώσης. Οι συζητήσεις έλαβαν χώρα είτε στο χώρο των νηπιαγωγείων, είτε μέσω διαδικτύου, με τα προσκεκλημένα πρόσωπα να εξιστορούν όσα γνωρίζουν για την ιστορία των μνημείων. Μέσα από τις ερωτήσεις που έθεσαν οι μαθητές διεύρυναν τις γνώσεις τους και έλυσαν αρκετές από τις απορίες που είχαν. 
-
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2040.jpg
             
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2038.jpg)
+
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2042.jpg)
+
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2043.jpg)
+
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2036.jpg)
+
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2035.jpg)
 
 *ΤΕΤΑΡΤΗ ΦΑΣΗ- ΣΧΕΔΙΟ ΔΡΑΣΗΣ
+
 Σε αυτή τη φάση, μετά από τις πληροφορίες που συγκέντρωσαν για τα προβλήματα στο χώρο των μνημείων, οι ομάδες συζήτησαν και δημιούργησαν ένα σχέδιο δράσης στο οποίο πρότειναν λύσεις. Για παράδειγμα, για την διαχείριση των απορριμμάτων πρότειναν την ανακύκλωση ή κομποστοποίηση, για την αυξημένη κατανάλωση ενέργειας είχαν ως πρόταση τη χρήση εναλλακτικών πηγών ενέργειας. Επίσης, για τη δυσκολία πρόσβασης στα μνημεία πρότειναν την τοποθέτηση σήμανσης. Από την άλλη πλευρά, για την έλλειψη πρασίνου ανέφεραν τη δημιουργία κήπων ή για την ύπαρξη αγριόχορτων των καθαρισμό των χώρων ως προληπτική ενέργεια για τις φωτιές. 
 
 Στη διαδρομή μου βρήκα προβλήματα πολλά και πρέπει όλα να τα λύσω σωστά!
@@ -165,7 +194,7 @@
 Ακολούθως, κάθε σχολείο δημιούργησε μία τρισδιάστατη μακέτα του μνημείου του και του περιβάλλοντος χώρου, συμπεριλαμβανομένου των σημείων προς βελτίωση για την περιοχή αυτή. Οι μαθητές χρησιμοποίησαν αποκλειστικά ανακυκλώσιμα υλικά για την κατασκευή. Πέραν αυτού, τα νήπια στα βίντεο που δημιούργησαν αφηγήθηκαν τα ευρήματά τους και προχώρησαν στην επίδειξη τρόπων επίλυσης των ζητημάτων βασισμένα στο σχέδιο δράσης τους. Στη φάση αυτή αξιοποιήθηκε ο ρομποτικός εξοπλισμός για την υποστήριξη της δράσης. Δείτε τις μακέτες:
 
 Μακέτες μνημείων
-
+https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2059.png
 
 
 *ΕΚΤΗ ΦΑΣΗ- ΔΙΑΔΡΑΣΤΙΚΟΣ ΧΑΡΤΗΣ (QR ΚΩΔΙΚΕΣ, CHATTERPIX, ΑΛΓΟΡΙΘΜΟΣ, ΤΟΥΡΙΣΤΙΚΟΣ ΟΔΗΓΟΣ)
@@ -175,11 +204,13 @@
 
 Στο επόμενο στάδιο, οι ομάδες κωδικοποιούν τα συγκεκριμένα βίντεο προκειμένου να δημιουργήσουν ένα διαδραστικό χάρτη με QR κώδικες. Ο χάρτης αυτός αποτελεί ένα νέο ερέθισμα για τα νήπια τα οποία προσπαθούν να ακολουθήσουν τα σωστά βήματα για να ολοκληρώσουν τη διαδρομή χρησιμοποιώντας τον τεχνολογικό και ρομποτικό εξοπλισμό τους. Πιο ειδικά, οι μαθητές έχουν σαν αποστολή να σκανάρουν τους κώδικες και να προγραμματίσουν το ρομποτάκι τους να εκτελέσει τη σωστή διαδρομή: να ξεκινήσει από ένα Μνημείο-Αφετηρία, να περάσει από όλα τα αξιοθέατα ακολουθώντας τις οδηγίες και να φτάσει στο τελικό σημείο, συνθέτοντας τον αλγόριθμο της οικοσυμμαχίας.
 
-    
+https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2051.jpg    
 
-    
+https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2055.jpg    
 
- 
+https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2054.jpg
+
+https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2049.jpg
 
 Τέλος, τα βίντεο που έφτιαξαν οι μαθητές στην πέμπτη φάση τοποθετούνται ως στοιχεία στην ψηφιακή μορφή του χάρτη, δημιουργώντας έναν διαφορετικό τουριστικό οδηγό με περιβαλλοντικά μηνύματα!
 
