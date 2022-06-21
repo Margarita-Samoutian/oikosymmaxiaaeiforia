@@ -126,7 +126,6 @@ http://meetingwords.com/9gqktuGDnv
 
 ![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2015.jpg)
 
-
 Αποτελέσματα έρευνας
 
 https://www.canva.com/design/DAE_GcM6mzQ/mMgrBZlG_APpSJ-U_JFGkw/view?utm_content=DAE_GcM6mzQ&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink
@@ -155,6 +154,7 @@ https://www.artsteps.com/view/628109c0a31975b70fed8fda
 
 ![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2025.jpg)
 
+
 *ΔΕΥΤΕΡΗ ΦΑΣΗ- ΕΠΑΦΗ ΜΕ ΤΟ ΣΗΜΕΙΟ (GOOGLE EARTH, GOOGLE MAPS, ΕΠΑΦΗ ΜΕ ΤΟ ΣΗΜΕΙΟ, ΑΝΙΧΝΕΥΣΗ ΠΡΟΒΛΗΜΑΤΩΝ)
 
 Όλες οι ομάδες χρησιμοποιώντας  την εφαρμογή Google Earth Pro εντόπισαν τα μνημεία που βρίσκονται στην περιοχή τους (εκείνα που είχαν δει στις φωτογραφίες που έφεραν στην προηγούμενη φάση, αλλά και άλλα καινούργια). Η εφαρμογή τους μετέφερε εικονικά σε αυτά, δίνοντάς τους τη δυνατότητα να παρατηρήσουν την διαδρομή, αλλά και τυχόν προβλήματα που θα μπορούσαν να συναντήσουν. Η ψηφιακή ξενάγηση προς το μνημείο που εκπροσωπούσε κάθε ομάδα αποθηκεύτηκε και με την βοήθεια εργαλείων της εφαρμογής αποτυπώθηκε σε βίντεο. Για τη συλλογή του υλικού χρησιμοποιήθηκε ένας ψηφιακός τοίχος.
@@ -176,12 +176,13 @@ https://dotstorming.com/w/62559256d58d6a5f05d9aee8
 “Προς το μνημείο μου προχωρώ και στη διαδρομή μου βρίσκω χίλια δυο”
 
 https://docs.google.com/presentation/d/1qg5D3dkx1BkpnfdJRE5rDIlgfLACkNKJfligRfx7vcU/edit?usp=sharing
+
  
 *ΤΡΙΤΗ ΦΑΣΗ- ΕΜΠΛΟΥΤΙΣΜΟΣ ΓΝΩΣΕΩΝ (ΣΥΝΕΝΤΕΥΞΗ, ΕΠΑΛΗΘΕΥΣΗ ΠΡΟΒΛΗΜΑΤΩΝ)
 
 Σε συνέχεια των δραστηριοτήτων και μετά την επιστροφή των παιδιών από τις επισκέψεις τους στα μνημεία, οι ομάδες προκειμένου να εμπλουτίσουν τις γνώσεις τους αναζήτησαν περαιτέρω πληροφορίες μέσα από συνεντεύξεις. Στόχος ήταν η σύγκριση των προβλημάτων που εντόπισαν κοντά στο αξιοθέατο με αυτά που υπήρχαν στο παρελθόν. Έτσι, παππούδες, γιαγιάδες, γονείς, ντόπιοι κάτοικοι και ειδικοί γίνονται συνοδοιπόροι σε αυτό το ταξίδι γνώσης. Οι συζητήσεις έλαβαν χώρα είτε στο χώρο των νηπιαγωγείων, είτε μέσω διαδικτύου, με τα προσκεκλημένα πρόσωπα να εξιστορούν όσα γνωρίζουν για την ιστορία των μνημείων. Μέσα από τις ερωτήσεις που έθεσαν οι μαθητές διεύρυναν τις γνώσεις τους και έλυσαν αρκετές από τις απορίες που είχαν. 
 
-![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2040.jpg
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2040.jpg)
             
 ![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2038.jpg)
 
@@ -191,7 +192,8 @@ https://docs.google.com/presentation/d/1qg5D3dkx1BkpnfdJRE5rDIlgfLACkNKJfligRfx7
 
 ![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2036.jpg)
 
-[![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2035.jpg)
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2035.jpg)
+
 
 *ΤΕΤΑΡΤΗ ΦΑΣΗ- ΣΧΕΔΙΟ ΔΡΑΣΗΣ
 
@@ -201,6 +203,7 @@ https://docs.google.com/presentation/d/1qg5D3dkx1BkpnfdJRE5rDIlgfLACkNKJfligRfx7
 
 https://jamboard.google.com/d/1jhB87Rh0JhkH0BK5VHdeZsjoY6bCn05bb9ahXdrLyK4/viewer?f=0
 
+
 *ΠΕΜΠΤΗ ΦΑΣΗ- ΜΑΚΕΤΑ (ΚΑΤΑΣΚΕΥΕΣ ΜΝΗΜΕΙΩΝ, ΔΙΑΔΡΟΜΕΣ)
 
 Ακολούθως, κάθε σχολείο δημιούργησε μία τρισδιάστατη μακέτα του μνημείου του και του περιβάλλοντος χώρου, συμπεριλαμβανομένου των σημείων προς βελτίωση για την περιοχή αυτή. Οι μαθητές χρησιμοποίησαν αποκλειστικά ανακυκλώσιμα υλικά για την κατασκευή. Πέραν αυτού, τα νήπια στα βίντεο που δημιούργησαν αφηγήθηκαν τα ευρήματά τους και προχώρησαν στην επίδειξη τρόπων επίλυσης των ζητημάτων βασισμένα στο σχέδιο δράσης τους. Στη φάση αυτή αξιοποιήθηκε ο ρομποτικός εξοπλισμός για την υποστήριξη της δράσης. Δείτε τις μακέτες:
@@ -209,7 +212,8 @@ https://jamboard.google.com/d/1jhB87Rh0JhkH0BK5VHdeZsjoY6bCn05bb9ahXdrLyK4/viewe
 
 https://cdn.flipsnack.com/widget/v2/widget.html?hash=hci49kco7k
 
-[![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2059.png)
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2059.png)
+
 
 *ΕΚΤΗ ΦΑΣΗ- ΔΙΑΔΡΑΣΤΙΚΟΣ ΧΑΡΤΗΣ (QR ΚΩΔΙΚΕΣ, CHATTERPIX, ΑΛΓΟΡΙΘΜΟΣ, ΤΟΥΡΙΣΤΙΚΟΣ ΟΔΗΓΟΣ)
 
@@ -221,13 +225,13 @@ https://www.thinglink.com/scene/1584936570014662658
 
 Στο επόμενο στάδιο, οι ομάδες κωδικοποιούν τα συγκεκριμένα βίντεο προκειμένου να δημιουργήσουν ένα διαδραστικό χάρτη με QR κώδικες. Ο χάρτης αυτός αποτελεί ένα νέο ερέθισμα για τα νήπια τα οποία προσπαθούν να ακολουθήσουν τα σωστά βήματα για να ολοκληρώσουν τη διαδρομή χρησιμοποιώντας τον τεχνολογικό και ρομποτικό εξοπλισμό τους. Πιο ειδικά, οι μαθητές έχουν σαν αποστολή να σκανάρουν τους κώδικες και να προγραμματίσουν το ρομποτάκι τους να εκτελέσει τη σωστή διαδρομή: να ξεκινήσει από ένα Μνημείο-Αφετηρία, να περάσει από όλα τα αξιοθέατα ακολουθώντας τις οδηγίες και να φτάσει στο τελικό σημείο, συνθέτοντας τον αλγόριθμο της οικοσυμμαχίας.
 
-[![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2051.jpg)
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2051.jpg)
 
-[![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2055.jpg)
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2055.jpg)
 
-[![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2054.jpg)
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2054.jpg)
 
-[![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2049.jpg)
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2049.jpg)
 
 Τέλος, τα βίντεο που έφτιαξαν οι μαθητές στην πέμπτη φάση τοποθετούνται ως στοιχεία στην ψηφιακή μορφή του χάρτη, δημιουργώντας έναν διαφορετικό τουριστικό οδηγό με περιβαλλοντικά μηνύματα!
 
@@ -235,19 +239,22 @@ https://www.thinglink.com/scene/1584936570014662658
 
 https://view.genial.ly/62818c614c44750018580eaf/interactive-image-interactive-image
 
+
 ΑΠΟΤΕΛΕΣΜΑΤΑ
 
 Το δίκτυο «μια Οικοσυμμαχία για την Αειφορία» το οποίο αποτελείται από μια ομάδα νηπιαγωγείων της Στερεάς Ελλάδας κατάφερε να δημιουργήσει μια εκπαιδευτική κοινότητα  και μέσα από τη συνεργασία, την επικοινωνία και την αλληλοϋποστήριξη να πετύχει τους στόχους που είχε θέσει. Βασικός στόχος η ανταλλαγή καλών πρακτικών και η  απόκτηση δεξιοτήτων μέσα από την αξιοποίηση της πλατφόρμας του eTwinning. Η οδηγός- εμψυχώτρια ήταν μια ζέβρα, με την βοήθεια της οποίας οι μαθητές εισήγαγαν την εκπαιδευτική ρομποτική στην μαθησιακή διαδικασία, προωθώντας τη STEAM Εκπαίδευση μέσα από την επεξεργασία του τρίτου θεματικού κύκλου «Δημιουργώ και Καινοτομώ – Δημιουργική Σκέψη και Πρωτοβουλία» των εργαστηρίων δεξιοτήτων. Τα εργαστήρια που υλοποιήθηκαν είχαν σαν κύριο στόχο την καλλιέργεια δεξιοτήτων του 21ου αιώνα, αλλά και την εμπλοκή της σχολικής κοινότητας. Τα νήπια μέσα από την έρευνα πεδίου, τη χρήση τεχνολογικού και ρομποτικού εξοπλισμού και την αξιοποίηση ψηφιακών εργαλείων κατάφεραν να αποσαφηνίσουν την έννοια των φυσικών ή πολιτιστικών μνημείων και να προτείνουν λύσεις για τη διαχείριση των προβλημάτων που ανακάλυψαν στην περιοχή τους. Το δίκτυο προσέγγισε την “αειφορία” με την υλοποίηση διεπιστημονικών δράσεων, αλλά και την σύνδεσή τους με την καθημερινή ζωή των μαθητών.
+
 
 ΑΞΙΟΛΟΓΗΣΗ
 
 Η ανατροφοδότηση των δραστηριοτήτων ήταν συνεχής και δημιουργήθηκαν εκπαιδευτικά παιχνίδια που ευνοούσαν την εμπέδωση της νέας γνώσης (Escape Room, Scratch Jr).
 
-[![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2060.jpg)
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2060.jpg)
 
 Παράλληλα, στις σελίδες του eTwinning υπήρχε σχολιασμός των δράσεων από όλες τις ομάδες. Η τελική αξιολόγηση είχε δυο μορφές: α) την ψηφοφορία των μαθητών για την ανάδειξη του αγαπημένου τους εργαστηρίου και β) την παρουσίαση της ανάλυσης SWOT από τους εκπαιδευτικούς.
 
-[![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2061.png)
+![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2061.png)
+
 
 ΔΙΑΧΥΣΗ
 
@@ -289,20 +296,30 @@ https://blogs.sch.gr/nipavlon/
 Προώθηση των δράσεων στην τοπική κοινότητα με διαμοιρασμό φυλλαδίων ή την πρόσκληση ειδικών
 Παρουσίαση των δράσεων σε σεμινάριο που διοργανώθηκε από τις συντονίστριες εκπαιδευτικού έργου του ΠΕΚΕΣ Στερεάς Ελλάδας με τίτλο «ΔΙΑΧΥΣΗ ΚΑΛΩΝ ΠΡΑΚΤΙΚΩΝ STEAM – ΡΟΜΠΟΤΙΚΗΣ».
 
+
 ΕΠΕΚΤΑΣΕΙΣ
 
 Στο τέλος, οι ομάδες αποφάσισαν για τις προεκτάσεις του σχεδίου δράσης: π.χ εξετάστηκαν οι δυνατότητες επικοινωνίας του ίδιου θέματος σε διαφορετικές γλώσσες και με αξιοθέατα άλλων ευρωπαϊκών χωρών ή την υιοθέτηση των μνημείων από τα σχολεία προκειμένου να ευαισθητοποιήσουν την τοπική τους κοινωνία σχετικά με τη διατήρησή τους και την καλλιέργεια του σεβασμού της φυσικής και πολιτιστικής κληρονομιάς των περιοχών. 
+
 
 ΕΠΙΛΟΓΟΣ- ΣΥΜΠΕΡΑΣΜΑΤΑ
 
 Μέσα από τη συντονισμένη δράση αλλά και τη συνεργασία σε μία σύμπραξη 13 σχολείων της Στερεάς Ελλάδας, οι μαθητές κατάφεραν:
 
 -να καλλιεργήσουν το διάλογο και τις δημοκρατικές διαδικασίες, καθώς η επιλογή των μνημείων έγινε μετά από ψηφοφορία
+
 -να εμπλουτίσουν μέσα από το παιχνίδι τις γνώσεις τους πάνω σε μνημεία–αξιοθέατα του τόπου τους, αλλά και της ευρύτερης περιοχής,
+
 -να βγουν έξω από το σχολείο και να αναζητήσουν οι ίδιοι την πληροφορία (μνημείου-αξιοθέατου) παίζοντας ενεργό ρόλο στην εκπαιδευτική διαδικασία,
+
 -να καλλιεργήσουν δεξιότητες κριτικής και υπολογιστικής σκέψης, κωδικοποίησης και προγραμματισμού και να έρθουν σε επαφή με τις νέες τεχνολογίες στην εκπαιδευτική διαδικασία,
--να καλλιεργήσουν δεξιότητες επικοινωνίας και συνεργασίας καθώς εργάστηκαν σε ομάδες, οδηγούμενοι σε μια ομαδοκεντρική προσέγγιση της εκπαιδευτικής διαδικασίας.
+
+-να καλλιεργήσουν δεξιότητες επικοινωνίας και συνεργασίας καθώς εργάστηκαν σε ομάδες, οδηγούμενοι σε μια ομαδοκεντρική προσέγγιση της εκπαιδευτικής διαδικασίας,
+
 -να προσφέρουν ένα λειτουργικό εργαλείο, αυτό του τουριστικού οδηγού, στην τοπική κοινότητα,
+
 -να ασχοληθούν με το περιβάλλον, τα προβλήματα αλλά και την προστασία του, υιοθετώντας καλές πρακτικές όπως: η ανακύκλωση, η επαναχρησιμοποίηση, η κομποστοποίηση, η μείωση του οικολογικού αποτυπώματος, αλλά και ορθές πρακτικές κυκλοφορίας,
+
 -να βιώσουν έμπρακτα το κλίμα συνεργασίας, επικοινωνίας, ανταλλαγής ιδεών και καλών πρακτικών, να νιώσουν μέλη μιας ευρύτερης εκπαιδευτικής κοινότητας και να διαδώσουν τα αποτελέσματά της στην ευρύτερη κοινότητα
+
 -να κατανοήσουν την  αναγκαιότητα διατήρησης της πολιτιστικής κληρονομιάς ως αναπόσπαστο κομμάτι του πολιτισμού ενός τόπου.
