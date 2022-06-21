@@ -243,11 +243,11 @@ https://view.genial.ly/62818c614c44750018580eaf/interactive-image-interactive-im
 
 Η ανατροφοδότηση των δραστηριοτήτων ήταν συνεχής και δημιουργήθηκαν εκπαιδευτικά παιχνίδια που ευνοούσαν την εμπέδωση της νέας γνώσης (Escape Room, Scratch Jr).
 
-[![image]
+[![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2060.jpg)
 
 Παράλληλα, στις σελίδες του eTwinning υπήρχε σχολιασμός των δράσεων από όλες τις ομάδες. Η τελική αξιολόγηση είχε δυο μορφές: α) την ψηφοφορία των μαθητών για την ανάδειξη του αγαπημένου τους εργαστηρίου και β) την παρουσίαση της ανάλυσης SWOT από τους εκπαιδευτικούς.
 
-[![image]
+[![image](https://github.com/Margarita-Samoutian/oikosymmaxiaaeiforia/blob/main/%CE%9C%CE%B9%CE%B1%20%CE%9F%CE%B9%CE%BA%CE%BF%CF%83%CF%85%CE%BC%CE%BC%CE%B1%CF%87%CE%AF%CE%B1%20%CE%B3%CE%B9%CE%B1%20%CF%84%CE%B7%CE%BD%20%CE%91%CE%B5%CE%B9%CF%86%CE%BF%CF%81%CE%AF%CE%B1%2061.png)
 
 ΔΙΑΧΥΣΗ
 
